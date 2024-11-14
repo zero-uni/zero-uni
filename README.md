@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @zero-uni
-- 👀 I’m interested in miceobiology, movies, social media
+- 👀 I’m interested in microbiology, movies, social medias
 - 🌱 I’m currently learning English
 - 💞️ I’m looking to collaborate on EVERYTHING
 - 📫 How to reach me lu_mengmeng@outlook.com
